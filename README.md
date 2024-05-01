@@ -2,7 +2,7 @@
 - 👀 I’m interested in lzh
 - 🌱 I’m currently learning tl
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me steve adc dgbbf
+- 📫 How to reach me 不知道
 - 😄 Pronouns: chicken
 - ⚡ Fun fact: No
 
